@@ -3,6 +3,6 @@
 
 Only authorized for Team Pegasus Middle School teams usage for 2020-2021, you may use this after the competition.
 
-Created by Cadet Ryan Holmes
+Created by Cadets Ryan Holmes, Jack Coovrey and Maika Ognoskia 
 
 Good luck to all future teams!
